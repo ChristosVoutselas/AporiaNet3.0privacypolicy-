@@ -167,8 +167,8 @@ I may update our Privacy Policy from time to time. Thus, you are advised to revi
 If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me.
 **voutselas.christos@gmail.com**
 
-
-
+##**Delete user data**
+contact us voutselas.christos@gmail.com*
 
 ##**User Data Deletion:**
 For data deletion please contact  **voutselas.christos@gmail.com**
